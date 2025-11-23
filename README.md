@@ -235,8 +235,13 @@ Memberitakan amal agar dipuji banyak orang.
 ### ⭐ D. Hikmah Menghindari Akhlak Tercela
 
 ✨ Hidup lebih tenang dan damai
+
 ✨ Dijauhi dari dosa
+
 ✨ Disukai orang
+
 ✨ Hati menjadi bersih
+
 ✨ Mendapat pahala
+
 ✨ Kepribadian lebih mulia
