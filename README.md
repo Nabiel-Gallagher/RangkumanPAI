@@ -198,50 +198,50 @@ Akhlak madzmumah adalah sifat atau perilaku buruk yang dilarang dalam Islam, kar
 ### ⭐ B. Macam-Macam Akhlak Tercela + Penjelasan
 🔹 1. Foya-foya (Tabdzir)
 
-Menghamburkan harta secara berlebihan dan tidak bermanfaat.
+  Menghamburkan harta secara berlebihan dan tidak bermanfaat.
 
 🔹 2. Sombong (Takabur)
 
-Merasa diri paling hebat dan merendahkan orang lain.
+  Merasa diri paling hebat dan merendahkan orang lain.
 
 🔹 3. Iri (Hasad)
 
-Tidak senang melihat kebahagiaan orang lain.
+  Tidak senang melihat kebahagiaan orang lain.
 
 🔹 4. Riya’
 
-Beramal agar dilihat orang.
+  Beramal agar dilihat orang.
 
 🔹 5. Sum’ah
 
-Memberitakan amal agar dipuji banyak orang.
+  Memberitakan amal agar dipuji banyak orang.
 
 ### ⭐ C. Cara Menghindari Akhlak Tercela
 
-✔ Membiasakan syukur
-
-✔ Meningkatkan ibadah
-
-✔ Bergaul dengan orang baik
-
-✔ Menjaga niat agar ikhlas
-
-✔ Menghindari lingkungan buruk
-
-✔ Sering muhasabah diri
-
-✔ Menyadari bahwa semua nikmat berasal dari Allah
+  ✔ Membiasakan syukur
+  
+  ✔ Meningkatkan ibadah
+  
+  ✔ Bergaul dengan orang baik
+  
+  ✔ Menjaga niat agar ikhlas
+  
+  ✔ Menghindari lingkungan buruk
+  
+  ✔ Sering muhasabah diri
+  
+  ✔ Menyadari bahwa semua nikmat berasal dari Allah
 
 ### ⭐ D. Hikmah Menghindari Akhlak Tercela
 
-✨ Hidup lebih tenang dan damai
-
-✨ Dijauhi dari dosa
-
-✨ Disukai orang
-
-✨ Hati menjadi bersih
-
-✨ Mendapat pahala
-
-✨ Kepribadian lebih mulia
+  ✨ Hidup lebih tenang dan damai
+  
+  ✨ Dijauhi dari dosa
+  
+  ✨ Disukai orang
+  
+  ✨ Hati menjadi bersih
+  
+  ✨ Mendapat pahala
+  
+  ✨ Kepribadian lebih mulia
